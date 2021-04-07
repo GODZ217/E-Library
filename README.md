@@ -2,6 +2,4 @@
 
 ![](https://raw.githubusercontent.com/GODZ217/E-Library/main/.img/ss.png)
 
-
-
-![](https://user-images.githubusercontent.com/81666705/113916616-5f3f2200b-995c-f380b6c161cb.PNG)
+![halamandepan](https://user-images.githubusercontent.com/81666705/113917781-d45f2700-980b-11eb-9f69-af95fd4e2c6a.PNG)
