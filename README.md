@@ -7,3 +7,5 @@
 ![Capture](https://user-images.githubusercontent.com/81666705/113917998-1f793a00-980c-11eb-8874-17fefc25943f.PNG)
 
 ![deksbuku](https://user-images.githubusercontent.com/81666705/113918213-57807d00-980c-11eb-82e9-2031b8008571.PNG)
+
+![menu](https://user-images.githubusercontent.com/81666705/113918979-42581e00-980d-11eb-9171-30caa1e53643.PNG)
